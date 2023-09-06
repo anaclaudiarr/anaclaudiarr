@@ -1,4 +1,4 @@
-### 🟣 Olá! Sou a Ana Cláudia, bem vindo ao meu perfil!
+### ツ Olá! Sou a Ana Cláudia, bem vindo ao meu perfil! 
 
 ##
 
